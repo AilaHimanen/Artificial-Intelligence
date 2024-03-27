@@ -1,0 +1,2 @@
+Ryhmän harjoitusprojekti
+
